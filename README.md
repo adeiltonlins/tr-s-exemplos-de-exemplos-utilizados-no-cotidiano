@@ -1,0 +1,1 @@
+# tr-s-exemplos-de-exemplos-utilizados-no-cotidiano
